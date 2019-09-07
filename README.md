@@ -1,0 +1,1 @@
+# Economica-do-Brasil-Sintetizada
